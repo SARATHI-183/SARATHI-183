@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sarathi8800@gmail.com**
 
-- 📄 Know about my profile [https://drive.google.com/file/d/1waLI_kLt8RJ5LAw3O5VhEBw6EG4A7X7p/view?usp=drive_link](https://drive.google.com/file/d/1waLI_kLt8RJ5LAw3O5VhEBw6EG4A7X7p/view?usp=drive_link)
+- 📄 Know about my profile [https://drive.google.com/file/d/1waLI_kLt8RJ5LAw3O5VhEBw6EG4A7X7p/view?usp=drive_link](https://drive.google.com/file/d/1gaec1REzNDNioLyH7i3ccp2JWa4T-d62/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
